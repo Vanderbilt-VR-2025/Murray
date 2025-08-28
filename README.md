@@ -1,5 +1,12 @@
 “Hope” is the thing with feathers -  
 That perches in the soul -  
 And sings the tune without the words -  
-And never stops - at all -  
+And never ever ends - at all  
 And sweetest - in the Gale - is heard -  
+
+yicheng
+
+Christian was here...
+
+Vienna's Edits
+
